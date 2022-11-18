@@ -1,2 +1,2 @@
 # centralrepository
-iam a lengend
+iam a legend
